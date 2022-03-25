@@ -1,0 +1,1 @@
++ I am looking for a change of pace and to challenge myself. I realized that I've always had the capacity to be a developer, I just didn't believe in myself. However, now is the time to try something new and develop a growth mindset.
